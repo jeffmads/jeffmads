@@ -5,7 +5,7 @@
 
 <img src="https://64.media.tumblr.com/6a9b5aa330333d4dfe5685b95b6afa26/d5be44d9bf4d0004-52/s1280x1920/5001abbc2f6e58268ba61a5bfde13231feb7b919.png"/>
 
-hello my name is firstname **travis** lastname jeffmads (real)</p>
+hello my name is firstname **travis** lastname jeffmads (real). he / they mainly im singaporean and chinese
 **BYI**
 i am okay w c + h! just ask first because i will get jumpscared, rp okay but i will not take it seriously, please **W2I!!!** i am always offtab unless w friends and i will NOT SEE UR MESSAGE
 
@@ -13,7 +13,7 @@ i am okay w c + h! just ask first because i will get jumpscared, rp okay but i w
 
 MORE INFO + GIMMICKS IN [STRAWPAGE](https://jeffermads.straw.page/)!! send me something please i love u
 
-i like **hamilton**, gorillaz, tally hall, jet lag the game, welcome to the table and hetalia a lot so u will commonly see me in those skins. other fandoms not listed [here](https://rentry.co/totaldramaisIand). pls int if u like them !!! 
+i like **hamilton**, gorillaz, tally hall, jet lag the game, welcome to the table and hetalia a lot so u will commonly see me in those skins. other fandoms not listed [here](https://rentry.co/totaldramaisIand). pls int if u like them !!! american history and america in general is my special interest
 
 ☆ my fav ever characters r **jeffburrmads** (hamilton), **rusame** + FACE family + singapore (hetalia), **2russdoc** + del (gorillaz), **flogov** (wttt)
 
