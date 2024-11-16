@@ -14,13 +14,11 @@ im okay w c + h!, rp okay but i will not take it seriously, please **W2I!!!** i 
 
 MORE INFO + GIMMICKS IN [STRAWPAGE](https://jeffermads.straw.page/)!! send me something please i love u
 
-i like **hamilton**, gorillaz, tally hall, jet lag the game, welcome to the table, hetalia and slenderverse a bunch! im normally in those skins :3c. other fandoms not listed [here](https://rentry.co/totaldramaisIand). PLEASE feel free to int if u like em :) !!! american history and america in general is my special interest
+i like **hamilton**, gorillaz, tally hall, jet lag the game, welcome to the table, hetalia, smps and slenderverse a bunch! im normally in those skins :3c. other fandoms not listed [here](https://rentry.co/totaldramaisIand). PLEASE feel free to int if u like em :) !!! american history and america in general is my special interest
 
-☆ my fav ever characters r **jeffburrmads** (hamilton), **rusame** + FACE family + singapore (hetalia), **2russdoc** + del (gorillaz), **flogov** (wttt) please drop them in my strawpage
+☆ my fav ever characters r **jeffburrmads** (hamilton), **america** + singapore (hetalia), **2russdoc** + del (gorillaz) please drop them in my strawpage
 
 **ALWAYS FEEL FREE 2 INT W ME!!** im the furthest thing from intimidating
-
-if u want to look for me, my most common skins are any hamilton character (mostly lafayette, madison or phillip), 2d gorillaz, america hetalia, ben drowned and florida wttt. find me most commonly at the mcyt area. github always linked. bless
 
 [ART TWITTER](https://twitter.com/ogkrcast) ☆ [SPAM TWITTER](https://twitter.com/rusameyaoi) ☆ [SPOTIFY](https://open.spotify.com/user/pjs8thycpapcc70wb47elos6q) ☆ [STRAWPAGE](https://jeffermads.straw.page/)
 
