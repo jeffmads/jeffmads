@@ -14,9 +14,7 @@ im okay w c + h!, rp okay but i will not take it seriously, please **W2I!!!** i 
 
 MORE INFO + GIMMICKS IN [STRAWPAGE](https://jeffermads.straw.page/)!! send me something please i love u
 
-i like **hamilton**, gorillaz, tally hall, jet lag the game, welcome to the table, hetalia, smps and slenderverse a bunch! im normally in those skins :3c. other fandoms not listed [here](https://rentry.co/totaldramaisIand). PLEASE feel free to int if u like em :) !!! american history and america in general is my special interest
-
-☆ my fav ever characters r **jeffburrmads** (hamilton), **america** + singapore (hetalia), **2russdoc** + del (gorillaz) please drop them in my strawpage
+i like **hamilton**, britpop (blur & **oasis** esp,,) gorillaz, tally hall, jet lag the game, welcome to the table, hetalia, mcsmps and slenderverse a bunch! im normally in those skins :3c. other fandoms not listed [here](https://rentry.co/totaldramaisIand). PLEASE feel free to int if u like em :) !!! 
 
 **ALWAYS FEEL FREE 2 INT W ME!!** im the furthest thing from intimidating
 
