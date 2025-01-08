@@ -12,13 +12,13 @@ im okay w c + h!, rp okay but i will not take it seriously, please **W2I!!!** i 
 
 **DNI** wilbur soot / drm team fans, hazbin / helluva fans, think u like hamilton more than me,, im very protective over hamilton. bless
 
-MORE INFO + GIMMICKS IN [STRAWPAGE](https://jeffermads.straw.page/)!! send me something please i love u
+MORE INFO + GIMMICKS IN [STRAWPAGE](https://2russdoc.straw.page/)!! send me something please i love u
 
 i like **hamilton**, britpop (blur & **oasis!!** esp,,) gorillaz, tally hall, jet lag the game, welcome to the table, hetalia, mcsmps and slenderverse a bunch! im normally in those skins :3c. other fandoms not listed [here](https://rentry.co/totaldramaisIand). PLEASE feel free to int if u like em :) !!! 
 
 **ALWAYS FEEL FREE 2 INT W ME!!** im the furthest thing from intimidating
 
-[ART TWITTER](https://twitter.com/ogkrcast) ☆ [SPAM TWITTER](https://twitter.com/rusameyaoi) ☆ [SPOTIFY](https://open.spotify.com/user/pjs8thycpapcc70wb47elos6q) ☆ [STRAWPAGE](https://jeffermads.straw.page/)
+[ART TWITTER](https://twitter.com/ogkrcast) ☆ [SPAM TWITTER](https://twitter.com/rusameyaoi) ☆ [SPOTIFY](https://open.spotify.com/user/pjs8thycpapcc70wb47elos6q) ☆ [STRAWPAGE](https://2russdoc.straw.page/)
 
 
 
