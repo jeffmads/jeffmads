@@ -18,7 +18,7 @@ i like **hamilton**, britpop (blur & **oasis!!** esp,,) gorillaz, tally hall, je
 
 **ALWAYS FEEL FREE 2 INT W ME!!** im the furthest thing from intimidating
 
-[ART TWITTER](https://twitter.com/ogkrcast) ☆ [SPAM TWITTER](https://twitter.com/rusameyaoi) ☆ [SPOTIFY](https://open.spotify.com/user/pjs8thycpapcc70wb47elos6q) ☆ [STRAWPAGE](https://2russdoc.straw.page/)
+[ART TWITTER](https://twitter.com/ogkrcast) ☆ [SPAM TWITTER](https://twitter.com/wibblingrivalry) ☆ [SPOTIFY](https://open.spotify.com/user/pjs8thycpapcc70wb47elos6q) ☆ [STRAWPAGE](https://2russdoc.straw.page/)
 
 
 
