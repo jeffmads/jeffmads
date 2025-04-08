@@ -1,6 +1,6 @@
-**THE REYNOLDS PAMPHLET.. HAVE U READ THIS ?!**
+**I'M FEELING SUPERSONIC !**
 
-  <img width="500" src="https://64.media.tumblr.com/7a0a814bf001d5494979c25187e6820a/6aec571d4b11117d-41/s500x750/8ac06ed4e6ae593063a6ba2411a38a8ba3cc6792.gif"/>
+  <img width="500" src="https://64.media.tumblr.com/a9a5524db341a3311460ba9003a86c3c/f1d10341b8a9343e-20/s400x600/32d9530bc2267f4b5fc50768211058d8b173a269.gif"/>
 
 
 <img src="https://64.media.tumblr.com/6a9b5aa330333d4dfe5685b95b6afa26/d5be44d9bf4d0004-52/s1280x1920/5001abbc2f6e58268ba61a5bfde13231feb7b919.png"/>
